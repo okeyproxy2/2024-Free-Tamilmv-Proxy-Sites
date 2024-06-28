@@ -52,9 +52,10 @@ Furthermore, it's advisable to utilize a reliable proxy service when accessing t
 
 ## Best Tamilmv Proxy Server
 
-If you're in search of reliable proxy services, [**Okeyproxy**](https://okeyproxy.net/?link=b63b57) emerges as a premier choice. As one of the top 5 Socks5 Proxy Providers, Okeyproxy offers over 150 million Residential Proxies spanning across 200+ countries. OkeyProxy ensures high-speed connections and efficient IP rotation, providing smooth and uninterrupted access to Tamilmv. Offering competitive pricing, such as unlimited residential proxies [3GB for only $9](https://www.okeyproxy.com/en/residential-proxies?link=b63b57), OkeyProxy provides an affordable solution without compromising on quality.
+**OkeyProxy**: Leading the Proxy Industry with 150 Million Real Residential IPs Across 200 Countries. Introducing our **Premium Plan** with an additional 150K top-quality US residential IPs. Unmatched speed, designed for those who seek perfection.
+[Get the best discount at just $0.9/GB.](https://www.okeyproxy.com/en/residential-proxies)
 
-[![EN banner](https://github.com/okeyproxy2/2024-Free-Tamilmv-Proxy-Sites/assets/155126786/c99dcbfa-6148-47ab-8253-7e982324b389)](https://www.okeyproxy.com/en/residential-proxies?link=b63b57)
+[![1](https://github.com/okeyproxy2/2024-Free-Tamilmv-Proxy-Sites/assets/155126786/ed59bedf-c656-4784-8752-2fa31a11c8e7)](https://www.okeyproxy.com/en/residential-proxies)
 
 ...
 
