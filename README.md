@@ -56,7 +56,3 @@ Furthermore, it's advisable to utilize a reliable proxy service when accessing t
 [Get the best discount at just $0.9/GB.](https://www.okeyproxy.com/en/residential-proxies)
 
 [![1](https://github.com/okeyproxy2/2024-Free-Tamilmv-Proxy-Sites/assets/155126786/ed59bedf-c656-4784-8752-2fa31a11c8e7)](https://www.okeyproxy.com/en/residential-proxies)
-
-...
-
-Read more: https://www.okeyproxy.com/proxy/using-tamilmv-proxy-for-unblocking/?link=b63b57
